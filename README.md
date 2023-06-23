@@ -5,4 +5,9 @@ Team 7 Favourite games
 1. The Legend of Zelda (Twilight Princess, Wind waker, Ocarina of Time etc. )
 2. Sekiro
 3. Game Of Thrones
-4. Asphalt8
+
+Sai's favorite
+Asphalt8
+
+Thomas' favorite
+Skyrim
